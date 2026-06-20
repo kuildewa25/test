@@ -1,3 +1,2 @@
 #aan
 #SHOPEE
-#MHC15D6A7D-
